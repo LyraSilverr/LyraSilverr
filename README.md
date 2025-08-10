@@ -10,15 +10,15 @@ I'm usually around the marvel/DC area beside bakery now, don't come say hi!! /Ha
 
 Here's what my status means!
 
-🟢Online: I'm there, just sitting. Watching 👀. You can interact. i will respond immediately.
+🟢**Online:** I'm there, just sitting. Watching 👀. You can interact. i will respond immediately.
 
-🌙Away and or sleeping: probably Afk doing something for a moment, will be back soon!
+🌙**Away and or sleeping:** probably Afk doing something for a moment, will be back soon!
 
-⛔Busy: Rarely use this, but if I am using this, I might not respond immediately since I am not looking at my phone.
+⛔**Busy:** Rarely use this, but if I am using this, I might not respond immediately since I am not looking at my phone.
 
-🗨️Looking for chat: Never use this.
+🗨️**Looking for chat:** Never use this.
 
-🎭Looking for roleplay: I never use this too.
+🎭**Looking for roleplay:** I never use this too.
 
 —————————————————————————
 $\color{#8451b6}{\textsf{Thank you for using your time to read this, have a good rest of your week! (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡
