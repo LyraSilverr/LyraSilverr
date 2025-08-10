@@ -6,7 +6,7 @@ I don't do well with personal questions, especially if we just met as I may just
 
 I'm usually around the marvel/DC area beside bakery now, don't come say hi!! /Half joking...
 
-—————————————————————————————
+—————————————————————————
 
 Here's what my status means!
 
@@ -20,7 +20,7 @@ Here's what my status means!
 
 🎭Looking for roleplay: I never use this too.
 
-—————————————————————————————
+—————————————————————————
 $\color{#8451b6}{\textsf{Thank you for using your time to read this, have a good rest of your week! (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡
 }}$
 <!--
