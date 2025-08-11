@@ -14,7 +14,7 @@ Here's what my status means!
 
 🌙**Away and or sleeping:** probably Afk doing something for a moment, will be back soon!
 
-⛔**Busy:** Rarely use this, but if I am using this, I might not respond immediately since I am not in pt/in a different app or something.
+⛔**Busy:** sometimes use this, I might not respond immediately since I am not in pt/in a different app or something.
 
 🗨️**Looking for chat:** Never use this.
 
