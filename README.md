@@ -2,7 +2,7 @@ Hello there! Here are some things to know before you interact if you are from Po
 
 I'm not looking for more friends, but we can chat if you want! (As stated in the short description, I can be a bit awkward, but i swear i'm friendly!)
 
-I don't do well with personal questions, especially if we just met as I may just say "I don't feel comfortable answering." Or something close to that, I just don't like sharing too much, or much about myself, really. (⁠╥⁠﹏⁠╥⁠) i also might go quiet if discussing personal things, my life isn't that interesting, pls don't ask... (⁠・⁠_⁠・⁠;⁠)
+I don't do well with personal questions, especially if we just met as I may just say "I don't feel comfortable answering." Or something close to that, I just don't like sharing too much, or much about myself, really. (⁠╥⁠﹏⁠╥⁠) i also might go quiet/not talk much if discussing personal things around me, my life isn't that interesting, pls don't ask... (⁠・⁠_⁠・⁠;⁠)
 
 I'm usually around the marvel/DC area beside bakery now, don't come say hi!! /Half joking... (⁠ꏿ⁠﹏⁠ꏿ⁠;⁠)
 
