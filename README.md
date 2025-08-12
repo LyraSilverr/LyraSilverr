@@ -6,7 +6,7 @@ I don't do well with personal questions, especially if we just met as I may just
 
 I'm usually around the marvel/DC area beside bakery now, don't come say hi!! /Half joking... (⁠ꏿ⁠﹏⁠ꏿ⁠;⁠)
 
-also, please do not try to roleplay with me if im cosplaying a character, i will immediately try to get out and not interact..
+also, please do not try to roleplay with me if im cosplaying a character, i will immediately try to get out and not interact, or will respond awkwardly. (⁠●⁠_⁠_⁠●⁠)
 
 —————————————————————————
 
