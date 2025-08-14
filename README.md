@@ -1,3 +1,5 @@
+<img width="140" src="https://komarev.com/ghpvc/?username=LyraSilverr&color=e3ecf3" alt="views count">
+
 <p align="center">
 Hello there! Here are some things to know before you interact if you are from Pony Town.
 
