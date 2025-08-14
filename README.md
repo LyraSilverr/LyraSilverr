@@ -1,4 +1,4 @@
-<img width="140" <p align="center">
+<img width="130"
  src="https://komarev.com/ghpvc/?username=LyraSilverr&color=e3ecf3" alt="views count">
 
 <p align="center">
