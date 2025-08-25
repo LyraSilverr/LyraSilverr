@@ -18,11 +18,11 @@ I'm usually around the marvel/DC area beside bakery now, don't come say hi!! /Ha
 
 Here's what my status means!
 
-🟢**Online:** I'm there, just sitting. Watching 👀. You can interact. i will respond immediately.
+🟢**Online:** I'm there, just sitting. Watching 👀. You can interact. i will respond immediately 99% of the time!
 
 🌙**Away and or sleeping:** probably Afk doing something for a moment, will be back soon!
 
-⛔**Busy:** I might not respond immediately since I am not in pt/in a different app or something, whisper to interact!!.
+⛔**Busy:** I might not respond immediately since I am not in pt/in a different app or something, whisper to interact!! 
 
 🗨️**Looking for chat:** Never use this.
 
