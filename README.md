@@ -18,7 +18,7 @@ I'm usually around the marvel/DC area beside bakery, don't come say hi!! /Half j
 
 Here's what my status means!
 
-🟢**Online:** I'm there, just sitting. Watching 👀. You can interact. i will respond immediately 99% of the time!
+🟢**Online:** I'm there, just sitting. Watching 👀. You can interact. i will respond immediately 98% of the time! (could be in the process of status being changed to away.)
 
 🌙**Away and or sleeping:** probably Afk doing something for a moment, will be back soon!
 
