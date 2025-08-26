@@ -31,6 +31,8 @@ Here's what my status means!
 —————————————————————————
 $\color{#8451b6}{\textsf{Thank you for using your time to read this, have a good rest of your week! (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡
 }}$
+
+<img width="400" src="https://media1.tenor.com/m/2k99zKb6S00AAAAC/loki-sylvie.gif" alt="namehere">
 <!--
 **LyraSilverr/LyraSilverr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
