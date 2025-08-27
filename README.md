@@ -29,6 +29,14 @@ Here's what my status means!
 🎭**Looking for roleplay:** I never use this too.
 
 —————————————————————————
+if i ever use Dnis on my ponies, here are the meanings of them if you don't know!
+
+DNI: Do not interact.
+
+DNIUF: Do not interact unless friend.
+
+DNIUID: Do not interact unless i do.
+-------------------------
 $\color{#8451b6}{\textsf{Thank you for using your time to read this, have a good rest of your week! (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡
 }}$
 
