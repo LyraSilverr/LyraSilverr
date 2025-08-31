@@ -32,8 +32,11 @@ Here's what my status means!
 $\color{#8451b6}{\textsf{Thank you for using your time to read this, have a good rest of your week! (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡
 }}$
 
+![wuwhwauh_transfer_2025-08-31_223052](https://github.com/user-attachments/assets/caa767ca-4c3d-4016-8e5b-a94284d751c5)
+
 <!--
-**LyraSilverr/LyraSilverr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**LyraSilverr/LyraSilverr** is a ✨ _special_ ✨
+repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
