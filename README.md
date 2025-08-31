@@ -11,7 +11,8 @@ Hello there! Here are some things to know before you interact if you are from Po
 
 
 <p align="center">
-I don't do well with personal questions, especially if we just met as I may just say "I don't feel comfortable answering." Or something close to that, I just don't like sharing too much, or much about myself, really. (⁠╥⁠﹏⁠╥⁠) i also might go quiet/not talk much if discussing personal things around me, my life isn't that interesting, pls don't ask... (⁠・⁠_⁠・⁠;⁠)
+I don't do well with personal questions, especially if we just met as I may just say "I don't feel comfortable answering." Or something close to that, I just don't like sharing too much, or much about myself, really. (⁠╥⁠﹏⁠╥⁠) i also might go quiet/not talk much if discussing personal things around me, my life isn't that interesting, pls don't ask... (⁠・⁠_⁠・⁠;⁠) ![GP5eGhjaAAAX_NY_transfer_2025-08-31_225505](https://github.com/user-attachments/assets/edfa89fd-2731-461b-bee8-5357a387c68c)
+
 
 I'm usually around the marvel/DC area beside bakery, don't come say hi!! /Half joking... (⁠ꏿ⁠﹏⁠ꏿ⁠;⁠)
 
