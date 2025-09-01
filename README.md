@@ -7,7 +7,7 @@ Hello there! Here are some things to know before you interact if you are from Po
 
 
 **I'm not looking for more friends!!** but, we can chat if you want! (As stated in the short description, I can be a bit awkward, but i swear i'm friendly!)
-![GyyQCKMWEAA7oeM_transfer_2025-08-31_225257](https://github.com/user-attachments/assets/4d45c27a-680a-477b-8750-ef790502f9b0) (this is me when you interact)
+![GyyQCKMWEAA7oeM_transfer_2025-08-31_225257](https://github.com/user-attachments/assets/4d45c27a-680a-477b-8750-ef790502f9b0) <p align="center>(this is me when you interact)
 
 
 <p align="center">
