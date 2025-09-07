@@ -31,7 +31,7 @@ Here's what my status means!
 
 🌙**Away and or sleeping:** probably Afk doing something for a moment, will be back soon!
 
-⛔**Busy and or sleeping:** I might not respond immediately since I am not in pt/in a different app or something, whisper to interact!! 
+⛔**Busy and or sleeping:** I might not respond immediately since I am not in pt/in a different app or something, whisper to interact!! (can be also interpreted as away)
 
 🗨️**Looking for chat:** Never use this.
 
