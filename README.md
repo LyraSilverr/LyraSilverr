@@ -43,10 +43,15 @@ If i ever have dnis in my name, here are their meanings!
            ↓
 
 Dni: Do not interact.
+
 Dniuf/c: do not interact unless friend/close.
+
 Dniuid: do not interact unless i do.
 iwc: interact with caution.
-iw(E/S)c: interact with extreme/slight caution.
+
+
+iw(E/S)c: interact with 
+extreme/slight caution.
 
 $\color{#8451b6}{\textsf{Thank you for using your time to read this, have a good rest of your week! (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡
 }}$
