@@ -49,6 +49,7 @@ Dniuf/c: do not interact unless friend/close.
 Dniuid: do not interact unless i do.
 iwc: interact with caution.
 
+iwc: interact with caution.
 
 iw(E/S)c: interact with 
 extreme/slight caution.
