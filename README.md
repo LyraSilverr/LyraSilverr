@@ -3,7 +3,7 @@
 
 
 
-Hello there! Here are some things to know before you interact if you are from Pony Town. <img width="680" height="450" alt="GyVmaRdXQAMhR-q_transfer_2025-08-31_223900" src="https://github.com/user-attachments/assets/4ea097d8-9fc8-40e4-91d2-4406246924d5" />
+Hello there! Here are some things to know before you interact if you are from Pony Town. Dni meanings at the very bottom! ↓ <img width="680" height="450" alt="GyVmaRdXQAMhR-q_transfer_2025-08-31_223900" src="https://github.com/user-attachments/assets/4ea097d8-9fc8-40e4-91d2-4406246924d5" />
 
 
 **I'm not looking for more friends!!** but, we can chat if you want! (As stated in the short description, I can be a bit awkward, but i swear i'm friendly!)
@@ -38,6 +38,16 @@ Here's what my status means!
 🎭**Looking for roleplay:** I never use this too.
 
 —————————————————————————
+If i ever have dnis in my name, here are their meanings!
+           ↓
+           ↓
+
+Dni: Do not interact.
+Dniuf/c: do not interact unless friend/close.
+Dniuid: do not interact unless i do.
+iwc: interact with caution.
+iw(E/S)c: interact with extreme/slight caution.
+
 $\color{#8451b6}{\textsf{Thank you for using your time to read this, have a good rest of your week! (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡
 }}$
 
