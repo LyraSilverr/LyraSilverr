@@ -38,7 +38,9 @@ Here's what my status means!
 🎭**Looking for roleplay:** I never use this too.
 
 —————————————————————————
-If i ever have dnis in my name, here are their meanings!
+![1758909289631_transfer_2025-09-26_205456](https://github.com/user-attachments/assets/3be379b3-f4ed-4118-8024-110319081a80)
+
+If i ever have dnis in my name, here are their meanings
            ↓
            ↓
 
