@@ -25,7 +25,10 @@ I'm usually around the marvel/DC area beside bakery, don't come say hi!! /Half j
 
 —————————————————————————
 
+
 Here's what my status means!
+
+![1758909720283_transfer_2025-09-26_210205](https://github.com/user-attachments/assets/633df967-27ea-4588-b945-8781c884328e)
 
 🟢**Online:** I'm there, just sitting. Watching 👀. You can interact. i will respond immediately 98% of the time! (could be in the process of status being changed to away.)
 
