@@ -1,6 +1,7 @@
 
 ![od-stigma_transfer_2025-09-27_194552](https://github.com/user-attachments/assets/01f8675c-d8ce-4e31-b669-e98aee34e874)
 
+<p align="center">
 <img width="130"
  src="https://komarev.com/ghpvc/?username=LyraSilverr&color=e3ecf3" alt="views count">
 
