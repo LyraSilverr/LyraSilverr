@@ -78,6 +78,9 @@ $\color{#8451b6}{\textsf{Thank you for using your time to read this, have a good
 $\color{#d4d8dc}{\textsf{byebyes!}}$
 ![GUEIfc_WAAAL08G_transfer_2025-09-23_192922](https://github.com/user-attachments/assets/62298b1d-bdb6-49ac-9963-e143ab64a3dd)
 
+$\small{\textsf{ }}$
+
+![od-stigma_transfer_2025-09-27_194552](https://github.com/user-attachments/assets/01f8675c-d8ce-4e31-b669-e98aee34e874)
 
 
 
