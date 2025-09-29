@@ -3,7 +3,7 @@
 
 <p align="center">
 <img width="130"
- src="https://komarev.com/ghpvc/?username=LyraSilverr&color=e3ecf3" alt="views count">
+ src=https://komarev.com/ghpvc/?username=LyraSilverr&label=Fragments&color=d4d8dc
  
  <p align="center">
  “ᴛʜɪꜱ ꜱᴛᴏʀʏ ɪꜱ ᴊᴜꜱᴛ ꜰᴏʀ ᴛʜᴀᴛ ᴏɴᴇ ʀᴇᴀᴅᴇʀ.”
