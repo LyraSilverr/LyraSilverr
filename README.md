@@ -64,7 +64,10 @@ Dni: Do not interact.
 Dniuf/c: do not interact unless friend/close.
 
 Dniuid: do not interact unless i do.
+
  $\small{\textsf{ }}$
+
+
 iwc: interact with caution.
 
 iw(E/S)c: interact with 
